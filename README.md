@@ -27,8 +27,9 @@
 ---
 
 ## 📫 Contact Me
-- ✉️ Email: your.email@example.com  
-- 🌍 LinkedIn: [linkedin.com/in/yourprofile](#)  
+- ✉️ Email: Anthonymjomba84@gmail.com  
+- 🌍 LinkedIn]:(#) [www.linkedin.com/in/
+antony-mjomba-38652b2b1]
 
 ---
 ⭐️ *“Numbers tell the story, code makes them speak.”*
